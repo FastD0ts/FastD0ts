@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FastD0ts
 - 👀 I’m interested in just making fun computer programs!
-- 🌱 I’m currently learning AP Computer Science A.
+- 🌱 I’m currently lin my first year in mathematics at Purdue!
 - 💞️ I’m looking to collaborate on anything really. . .
 - 📫 How to reach me: email!
 
